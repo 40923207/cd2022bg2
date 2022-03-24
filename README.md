@@ -1,1 +1,1 @@
-https://40923240.github.io/cd2022bg2/
+https://40923207.github.io/cd2022bg2/
